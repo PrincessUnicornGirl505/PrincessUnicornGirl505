@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Princess Unicorn Girl
+- 👀 I’m interested in swimming 🏊🏻‍♀️ and reading 📚.
+- 🌱 I’m currently learning python 👩🏻‍💻.
+- 💞️ I’m looking to collaborate on all forms of questions that I can answer 🙋🏻‍♀️.
+- 📫 How to reach me: Email: princessunicorngirl50505@gmail.com
+- 💖 Also a ✨special✨ mention to my bEsTiEs, 🌹 gamer miffyyyyy 🌹 and 💕 ashyyyyy 💕!
